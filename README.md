@@ -4,7 +4,7 @@ Don't even think of inting if you're a white name, If I int first or you're a fr
 
 Usually offtab working . C+H always encouraged unless with friends.
 
-I'm often sitting with [@ccrny](https://github.com/ccrny) , [@arrowhazard](https://github.com/arrowhazard) , [@curse-manipulation](https://github.com/curse-manipulation) , @miss-ayase , [@5uguru](https://github.com/5uguru) and [@TombaRompa](https://github.com/TombaRompa)
+I'm often sitting with [@ccrny](https://github.com/ccrny) , [@arrowhazard](https://github.com/arrowhazard) , [@curse-manipulation](https://github.com/curse-manipulation) , [@miss-ayase](https://github.com/miss-ayase) , [@5uguru](https://github.com/5uguru) and [@TombaRompa](https://github.com/TombaRompa)
 <!---
 Judgenvy/Judgenvy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
