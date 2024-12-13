@@ -1,4 +1,4 @@
-
+![Image alt](https://www.bing.com/images/blob?bcid=sr6n8mZyZ9sH8w)
 Don't even think of inting if you're a white name, If I int first or you're a friend of a friend it's fine. Otherwise, kindly, f off. 
 
 Usually offtab working . C+H always encouraged unless with friends.
