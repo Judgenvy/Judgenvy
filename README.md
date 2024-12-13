@@ -1,4 +1,4 @@
-  ![Image alt](https://i.pinimg.com/736x/9b/08/6e/9b086eb578fd89d949a250d9a5b3309a.jpg)
+  ![Image alt](https://i.pinimg.com/736x/cc/50/33/cc5033d3505a8716a56e2be0af4903ce.jpg)
 
 Don't even think of inting if you're a white name, If I int first or you're a friend of a friend it's fine. Otherwise, kindly, f off. 
 
