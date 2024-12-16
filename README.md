@@ -1,4 +1,4 @@
-![Image alt](https://i.pinimg.com/736x/0a/5e/c0/0a5ec0eafb8ac9ba389e11551ff7d629.jpg)
+
 
 Usually offtab working . C+H always encouraged unless with friends. iwc white names.
 
